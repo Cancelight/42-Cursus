@@ -1,1 +1,1 @@
-Bernanın ingilççesi çko güzel
+..
